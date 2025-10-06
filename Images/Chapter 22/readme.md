@@ -1,1 +1,1 @@
-Chapter 22 images, in color where applicable.
+Chapter 22 contains no images
