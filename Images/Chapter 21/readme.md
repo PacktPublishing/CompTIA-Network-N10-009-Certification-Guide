@@ -1,1 +1,1 @@
-Chapter 21 images, in color where applicable.
+Chapter 21 contains no images
