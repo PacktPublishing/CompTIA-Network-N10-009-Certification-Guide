@@ -1,1 +1,1 @@
-Chapter 3 images, in color where applicable.
+Chapter 3 contains no images
