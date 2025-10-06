@@ -1,1 +1,1 @@
-Chapter 1 colour images where applicable
+Chapter 1 images, in color where applicable.
